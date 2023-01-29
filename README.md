@@ -2,7 +2,7 @@
 
 I❤️ code, HTML and anything **CREATIVE**✨
 
-🌍 Instagram [ID](https://www.instagram.com/ai_expert._.04)
+🌍 Instagram [ID](https://www.instagram.com/dongu130/)
 
 ## 💻 Technologies I Love
 
